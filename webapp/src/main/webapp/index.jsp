@@ -1,2 +1,2 @@
-<h1> Praise God </h1>
+<h1> Praise God. Thank you </h1>
 
